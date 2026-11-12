@@ -1,5 +1,7 @@
 # AdiNika Creations 💛
 
+My Link : https://muse.ai/s/adinika-creations-xal6mooxgxdcmxk/MD2bHvJfVeWpMYfZvdza_paac4ItPr-bvmV0_hmqGyE
+
 Hi hi! This is my very own brand and website — **AdiNika Creations** ✨
 
 I'm an enthusiastic person who combined my technical knowledge with my passion, and designed this little corner of the internet for people who love tiny, cute handcrafted things which make them feel loved within 🥰
